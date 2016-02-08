@@ -1,2 +1,0 @@
-# ZhikangWamg
-strugglelife.org
